@@ -68,11 +68,11 @@ Report – Dashboard
 
 Sprocket Central Pty Ltd.’s marketing team should primarily target customers aged 43-52, especially during the months of September and October. They should allocate significant resources to the NSW market, with additional efforts in VIC and QLD. Additionally, the team should create industry-specific campaigns and incentives for customers in the manufacturing and financial services sectors. These recommendations provide a clear roadmap for optimizing marketing efforts and reaching out to the most promising customer segments and markets.
 
-Interract with dashboard here
+Interract with dashboard https://www.novypro.com/project/kpmg---sprocket-market-performance-forcast
 
-View my portofolio here
+View my portofolio https://uduakn.github.io/UduakNjoku/
 
-Connect with me on linkedin here
+Connect with me on linkedin https://www.linkedin.com/in/uduak-njoku/
 
 
 
